@@ -9,7 +9,6 @@
 - 永久直连：https://relang66.com
 - 永久中转：https://relang01.com
 - 最新中转：https://relang10.com
-- PWA 地址：https://p1.relang66.com
 - App 下载：https://relang.app
 
 请认准以上唯一正版官方地址，谨防仿冒。
